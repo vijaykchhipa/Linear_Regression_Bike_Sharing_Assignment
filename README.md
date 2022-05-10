@@ -56,4 +56,4 @@ They have planned this to prepare themselves to cater to the people's needs once
 
 
 ## Contact
-Created by [@githubusername] - feel free to contact me!
+Created by [@vijaykchhipa] - feel free to contact me!
